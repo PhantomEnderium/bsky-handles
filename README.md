@@ -1,1 +1,3 @@
-wee wee wee
+so APPARENTLY this is kinda useless sine I own the domain
+
+darn
